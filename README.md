@@ -4,6 +4,6 @@
 
 ⏰免翻入口1：https://gjf12.v2dbkhlbk.com/
 
-⏰免翻入口2：https://v8hhlbk.com/
+⏰免翻入口2：https://g84hlbk.com/
 
 telegram:https://t.me/HLBK9696com
