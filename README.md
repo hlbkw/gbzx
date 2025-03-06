@@ -4,6 +4,6 @@
 
 ⏰免翻入口1：https://jyfru.38ghlbk.com/
 
-⏰免翻入口2：https://md9hlbk.com/
+⏰免翻入口2：https://3uyhlbk.com/
 
 telegram:https://t.me/hlbk_zx
