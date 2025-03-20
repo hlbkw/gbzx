@@ -2,8 +2,8 @@
 
 ⏰免翻入口导航：https://hlbk11.com/ （最新）
 
-⏰免翻入口1：https://jyfru.bmyhlbk.com/
+⏰免翻入口1：https://jyfru.innhlbk.com/
 
-⏰免翻入口2：https://nlohlbk.com/
+⏰免翻入口2：https://xymhlbk.com/
 
 telegram:https://t.me/hlbk_zx
