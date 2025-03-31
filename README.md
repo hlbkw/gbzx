@@ -1,6 +1,6 @@
 黑料网 最新地址 👋
 
-⏰免翻入口导航：https://hlbk11.com/ （最新）
+⏰免翻入口导航：https://hlbk12.com/ （最新）
 
 ⏰免翻入口1：https://jyfru.nf8hlbk.com/
 
