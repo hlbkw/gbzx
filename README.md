@@ -2,7 +2,7 @@
 
 ⏰免翻入口导航：https://hlbk19.com/ （最新）
 
-⏰免翻入口1：https://jyfru.u1phlbk.com/
+⏰免翻入口1：https://jyfru.zn3hlbk.com/
 
 ⏰免翻入口2：https://6nahlbk.com/
 
