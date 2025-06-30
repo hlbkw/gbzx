@@ -6,4 +6,4 @@
 
 ⏰免翻入口2：https://ysahlbk.com/
 
-telegram:https://t.me/hlbk_zx
+telegram:https://t.me/HLBK007
