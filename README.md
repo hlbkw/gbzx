@@ -1,6 +1,6 @@
 瓜爆臻选网最新地址 👋
 
-⏰免翻入口导航：https://gbzx16.com/ （最新）
+⏰免翻入口导航：https://gbzx17.com/ （最新）
 
 ⏰免翻入口1：https://baike.nsqgbzx.cc
 
